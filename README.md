@@ -50,6 +50,54 @@ Depending on your location, you may have the right to access, correct, or delete
 
 We may update our Privacy Policy from time to time. Any changes will be posted on this page with an updated effective date.
 
+
+
+Child Safety Policy for Confess
+
+Effective Date: September 29, 2025
+
+Company Name: BKStudio
+
+Contact Information: bugrakaraahmetoglubusiness@gmail.com
+
+1. Commitment to Child Safety
+
+At BKStudio, we are dedicated to ensuring the safety and well-being of all users, including children. We recognize that children have the right to be protected from harm, and we are committed to upholding this principle in all aspects of our operations.
+
+2. Scope of the Policy
+
+This policy applies to all users of the Itiraf Et application, particularly those under the age of 18. It outlines our approach to safeguarding children and sets forth the standards and procedures we follow to protect them.
+
+3. Prohibited Content and Activities
+
+We strictly prohibit any content or activities that may harm children, including but not limited to:
+
+Child sexual abuse material (CSAM)
+
+Exploitation or abuse of children
+
+Any form of child trafficking or illegal activities involving children
+
+Any such content identified within the app will be promptly removed, and appropriate actions will be taken in accordance with applicable laws.
+
+4. Data Collection and Privacy
+
+We do not collect personal information from children under the age of 13. Our data collection practices comply with relevant privacy laws, including the Children's Online Privacy Protection Act (COPPA) and the General Data Protection Regulation (GDPR). For more details, please refer to our Privacy Policy
+.
+
+5. Reporting and Feedback Mechanism
+
+We provide users with an in-app mechanism to report any concerns or incidents related to child safety. Users can contact us directly at bugrakaraahmetoglubusiness@gmail.com
+ to report issues or seek assistance.
+
+6. Compliance with Laws and Standards
+
+BKStudio adheres to the International Child Safeguarding Standards as outlined by Keeping Children Safe and complies with all relevant child protection laws and regulations. We are committed to continuous improvement in our child safeguarding practices.
+
+7. Review and Updates
+
+This policy will be reviewed annually to ensure its effectiveness and compliance with applicable laws and standards. Any updates will be communicated to users through appropriate channels.
+
 7. Contact Us
 
 If you have any questions about this Privacy Policy, please contact us at:
